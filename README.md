@@ -23,3 +23,5 @@ Right traffic + optimized website + strong listings = consistent sales growth.
 
 ## 🔹 Contact
 Available for freelance & long-term projects.
+📩 **Contact:**  
+Available for freelance and long-term eCommerce growth projects.
